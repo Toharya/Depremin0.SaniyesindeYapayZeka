@@ -1,0 +1,1 @@
+# Depremin0.SaniyesindeYapayZeka
